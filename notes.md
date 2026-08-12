@@ -6,7 +6,7 @@
 
 \- Prepare early
 
-\- Keep preparation simple
+\- Keep preparation quick
 
 \- Serve with rice
 

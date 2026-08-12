@@ -2,5 +2,5 @@
 
 
 
-\- Family recipe for weekends
+\- Family recipe
 
