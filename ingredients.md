@@ -6,6 +6,8 @@
 
 \- Tomatoes
 
+\- Green Chilli
+
 \- Coconut milk
 
 \- Salt

@@ -2,7 +2,7 @@
 
 
 
-\- Chicken Curry
+\- Spicy Curry
 
 \- Rice
 
