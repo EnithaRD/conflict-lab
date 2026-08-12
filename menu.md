@@ -4,7 +4,7 @@
 
 \- Chicken Curry
 
-\- Rice
+\- Garlic Rice
 
 \- Salad
 
