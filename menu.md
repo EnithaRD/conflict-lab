@@ -2,11 +2,11 @@
 
 
 
-\- Curry
+\- Spicy Curry
 
 \- Rice
 
 \- Salad
 
-\- Dessert
+\- Ice Cream
 

@@ -6,7 +6,7 @@
 
 \- Tomatoes
 
-\- Chilli
+\- Green Chilli
 
 \- Coconut milk
 
