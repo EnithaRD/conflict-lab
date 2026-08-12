@@ -4,7 +4,7 @@
 
 \- Chicken Curry
 
-\- Rice
+\- Fried Rice
 
 \- Salad
 
