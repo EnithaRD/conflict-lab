@@ -2,11 +2,11 @@
 
 
 
-\- Curry
+\- Chicken Curry
 
 \- Rice
 
 \- Salad
 
-\- Dessert
+\- Fruit Dessert
 
